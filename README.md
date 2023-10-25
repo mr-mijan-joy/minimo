@@ -1,1 +1,1 @@
-https://mrmijan44.github.io/minimo/
+https://mr-mijan-joy.github.io/minimo/
